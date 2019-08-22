@@ -1,0 +1,1 @@
+**Wow my first blog post!** This is a big step in blogging, as you have to start somewhere, so why not here? Some say this is a formality, but why not have some fun with it? I suppose I might as well discuss something, but I have not hot takes on anything so instead I'm just rambling on. As far as things go I'd say this is a pretty good test page, wouldn't you? 
